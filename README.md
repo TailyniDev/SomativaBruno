@@ -1,1 +1,1 @@
-https://hinyzw.github.io/SomativaBruno/
+https://TailyniDev.github.io/SomativaBruno/
